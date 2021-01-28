@@ -1,0 +1,2 @@
+# hahaha
+aku ingin kaya
